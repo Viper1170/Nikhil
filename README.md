@@ -1,2 +1,0 @@
-# Nikhil 
-Jr Ntr stickers
